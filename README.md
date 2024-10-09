@@ -4,7 +4,7 @@ i'm some undergraduate student pursuing data science (considering aiming for a p
 a while ago i decided it'd be a good idea to create a personal github account for projects i wanted to pursue outside of serious work, and i'm trying to be better about maintaining this space. 
 i love long walks, tea, 2000s electronic music, and a rotating assortment of indie games and science fiction. 
 ## assorted fun facts
-- i'm the top listener on last.fm for stephen j. kroos, and in the top 3 for probspot and basic perspective.
+- there was a point where i was the top listener on last.fm for both stephen j. kroos and basic perspective.
 - i hate condiments. 
 - my internet friend and i doxxed one another (benevolently) and then followed each other on linkedin.
 - my full name is ten words long, and my last name is an anglicisation and not a real word.
