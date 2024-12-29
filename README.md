@@ -17,3 +17,5 @@ i love long walks, tea, 2000s electronic music, and a rotating assortment of ind
     - i also ran 2/3rds of a state meet with one shoe on. 
 - celsius (the drink) smells like gasoline to me. 
 - my favourite microwave meal is the saffron road chicken enchiladas al chipotle. 
+## useless toy that i didnt make
+https://libraryofbabel.info/
